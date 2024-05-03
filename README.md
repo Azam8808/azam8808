@@ -17,7 +17,7 @@
 
 - 📫 How to reach me **azamkhan32451@gmail.com**
 
-- 📄 Know about my experiences [https://drive.google.com/file/d/18qciylSEkzcaESwZ0xGopmYiKPh1G-N0/view?usp=sharing](https://drive.google.com/file/d/18qciylSEkzcaESwZ0xGopmYiKPh1G-N0/view?usp=sharing)
+- 📄 Get my resume here--> [https://drive.google.com/file/d/18qciylSEkzcaESwZ0xGopmYiKPh1G-N0/view?usp=sharing](https://drive.google.com/file/d/18qciylSEkzcaESwZ0xGopmYiKPh1G-N0/view?usp=sharing)
 
 - ⚡ Fun fact **I think I am funny**
 
